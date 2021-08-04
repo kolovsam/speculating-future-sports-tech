@@ -1,1 +1,1 @@
-# speculating-future-sports-tech
+# Speculating Future Sports Tech
